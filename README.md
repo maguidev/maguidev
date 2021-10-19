@@ -1,4 +1,4 @@
-## Olá! Eu sou Magnólia Medeiros 👋
+## Olá! Eu sou a Magnólia 👋
 Bem vindo(a) ao meu perfil ✨
 
 <!--
